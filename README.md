@@ -1,5 +1,5 @@
 
-## Olá! Eu sou o Richard de Moraes 🖐️
+## Olá! Eu sou o Richard Moraes Grabinger 🖐️
 
 Profissional com mais de dez anos de experiência atuando em empresas de Transporte/Logistica, em transição de carreira para a área de tecnologia. 
 
